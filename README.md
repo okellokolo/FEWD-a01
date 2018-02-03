@@ -13,6 +13,6 @@ These are things i like to do:
 * Applying my new knowledge on my mini-projects whenever i have time.
 
 Here is a picture of me
-![Me thinking of what to learn next](https://www.facebook.com/photo.php?fbid=10211143435130441&set=pb.1494042297.-2207520000.1517681201.&type=3&theater)
+![Me thinking of what to learn next](https://www.facebook.com/photo.php?fbid=10211143435130441&set=a.1590519091583.79592.1494042297&type=3&theater)
 
 If you want to see my pictures playing harps in Africa, visit my [facebook account](https://www.facebook.com/okello.kolo)
