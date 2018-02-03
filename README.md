@@ -13,6 +13,6 @@ These are things i like to do:
 * Applying my new knowledge on my mini-projects whenever i have time.
 
 Here is a picture of boat in Indianapolis
-![Indianapolis](https://www.instagram.com/p/71iQPpNCBF/?hl=en&taken-by=okellokolo)
+![Indianapolis](https://scontent.cdninstagram.com/p/71iQPpNCBF/?hl=en&taken-by=okellokolo)
 
 If you want to see my pictures playing harps in Africa, visit my [facebook account](https://www.facebook.com/okello.kolo)
